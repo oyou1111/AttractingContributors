@@ -13,3 +13,4 @@ Recently, I'm really into **Måneskin**.
 - Bruno Mars
 - PikoTaro
 - Polkadot Stingray 
+- Cory Wong
