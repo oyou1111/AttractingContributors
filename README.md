@@ -4,5 +4,7 @@
 - going to Nagasaki
 - research
 - going to EXPO
+- Playing games
 - Going Dhaka
 - Go Fukuoka
+
