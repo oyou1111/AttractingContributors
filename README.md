@@ -6,3 +6,7 @@ Recently, I'm really into **Måneskin**.
 
 - Måneskin
 - ado
+- MyGO!!!!!
+- Kalafina
+- Jamiroquai
+- Bruno Mars
