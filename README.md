@@ -4,6 +4,7 @@
 - going to Nagasaki
 - research
 - going to EXPO
+- Looking Internship
 - plan to go to the C106
 - Playing games
 - Going Dhaka
