@@ -5,6 +5,7 @@ Recently, I'm really into **Måneskin**.
 # List of Artists
 
 - Måneskin
+- ado
 - MyGO!!!!!
 - Kalafina
 - Jamiroquai
