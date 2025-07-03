@@ -5,4 +5,4 @@
 - research
 - going to EXPO
 - Going Dhaka
-
+- Go Fukuoka
