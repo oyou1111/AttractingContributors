@@ -12,3 +12,4 @@ Recently, I'm really into **Måneskin**.
 - Jamiroquai
 - Bruno Mars
 - PikoTaro
+- Polkadot Stingray 
