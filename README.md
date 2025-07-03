@@ -11,4 +11,5 @@ Recently, I'm really into **Måneskin**.
 - Kalafina
 - Jamiroquai
 - Bruno Mars
+- PikoTaro
 - Polkadot Stingray 
